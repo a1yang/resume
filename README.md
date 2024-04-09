@@ -1,4 +1,4 @@
-# 江胜杨	![Image text](https://github.githubassets.com/assets/gh-desktop-7c9388a38509.png)
+# 江	![Image text](https://github.githubassets.com/assets/gh-desktop-7c9388a38509.png)
  Tel:18819702544 	 	Email:305824217@qq.com
 
 男|34 岁 (1990/04/11)|现居住：东莞- |10年工作经验 
